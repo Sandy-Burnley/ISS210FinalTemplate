@@ -12,5 +12,5 @@ https://www.youtube.com/watch?v=ZBlHc31cK24
 https://www.facebook.com/greenpeace.international
 https://instagram.com/350org
 https://twitter.com/Climate_Action_
-https://th.bing.com/th/id/OIP.sH_xIwgyijrCcAGaasktdQHaE8?pid=ImgDet&rs=1
-https://www.motivation.africa/wp-content/uploads/2020/01/150218-Mike-Shattocks-pigs-c-nocredit.v2.jpg
+https://cdn.vox-cdn.com/thumbor/T8fg6V-xi39FDPTMox8JHlIznOQ=/0x0:2039x1529/1200x800/filters:focal(0x0:2039x1529)/cdn.vox-cdn.com/uploads/chorus_image/image/33089597/487353325.0.jpg
+https://th.bing.com/th/id/OIP.lr1XvGHefzGUnAoXuChtJQHaE7?pid=ImgDet&rs=1
