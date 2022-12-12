@@ -3,3 +3,5 @@ Lindsay, Sally, et al. “Ableism and Workplace Discrimination Among Youth and Y
 Bonaccio, Silvia, et al. “The Participation of People with Disabilities in the Workplace Across the Employment Cycle: Employer Concerns and Research Evidence.” Journal of Business & Psychology, vol. 35, no. 2, Apr. 2020, pp. 135–58. EBSCOhost, https://doi.org/10.1007/s10869-018-9602-5.
 Hope Project: Google Search, Google, https://www.google.com/search?q=project+hope+foundation. 
 Autism: Google Search, Google, https://www.google.com/search?q=autism+clipart+of+brain. 
+
+2020, 05 August, and 5th August 2020				by Andrew Cabal. “About RMIT Online.” Establishing a Positive Workplace Culture: Definition, Tips &amp; Why It's Important | RMIT Online, 5 Aug. 2020, https://studyonline.rmit.edu.au/blog/positive-workplace-culture. 
